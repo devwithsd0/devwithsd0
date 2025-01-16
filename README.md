@@ -6,14 +6,14 @@ _I'm a student who loves performing experiments and making dumb things at spare 
 - __📬: How to reach me: You can't right now. Sorry for your inconvenience. 🙂__
 - __🔭: My Goal: Achieving a grand fame. + Lead a luxurious life. 😇__
 - __📡: I really wanna contribute to open source projects. Feel free to ask anything.__
-- __🎮: Minecraft, Free Fire and much more to describe.__
+- __🎮: Minecraft 🥗, Free Fire 🔫 and much more to describe.__
 > Roses are Red 🥀, Violets are Blue 🔮. You're invited 😉, From ME to YOU! 👊!!!
 
-_I really know you also like these. That's why you came here to complete the need._
+_I really know you also like these. That's why you came here to find your need._
 
-_If my inventions helped you a bit, please follow my small page. Your one handful support is everything to me._
+_If my inventions helped you a bit, please join the race with me. Your one handful support is everything to me._
 
-> Don't forget to join the race with me! 👍
+> Don't forget to give a follow buddy! 👍
 
 _Thanks!_
 
